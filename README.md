@@ -1,16 +1,12 @@
-## Hi there 👋
+<p align="center">
+vermin ╲ dude  ‎ ‎ ‎ ‎ ‎ ‎ ‎ (s)he it
+</p>
+<p align="center">
+  <img width="300" height="253" src="https://i.postimg.cc/59TKL3vH/Untitled2215-20250307211609.png">
+</p>
 
-<!--
-**nullbound97/nullbound97** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+<sub>I don't have a dni, but i would prefer if proship and incest fans didn't interact. when online, i mainly talk to friends. so sorry if i ignore you.</sub>
+</p>
 
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![div](https://i.postimg.cc/g0qLHT8s/IMG-8229.png)
