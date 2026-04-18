@@ -3,7 +3,7 @@ VERMIN ♱ LIU    (S)HE IT
 </p>
 
 <p align=”center”>
-<img src=”<img width="640" height="939" alt="image" src="https://github.com/user-attachments/assets/15972e0f-fd1c-4f95-96ae-b3ef469cf7d6" />
+<img src=
 
 ”>
 </p>
