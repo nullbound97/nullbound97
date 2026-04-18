@@ -1,5 +1,5 @@
 <p align="center">
-vermin ╲ dude  ‎ ‎ ‎ ‎ ‎ ‎ ‎ (s)he it
+VERMIN ╲ LIU  ‎ ‎ ‎ ‎ ‎ ‎ ‎ (S)HE IT
 </p>
 <p align="center">
   <img width="300" height="253" src="https://i.postimg.cc/59TKL3vH/Untitled2215-20250307211609.png">
