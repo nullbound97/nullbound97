@@ -11,4 +11,4 @@ VERMIN ♱ LIU    (S)HE IT
 <sub>I block freely & ignore most drama. I am very talkative though, especially when with friends! go ahead and sign my socials if u want.</sub>
 </p>
 
-![div](https://i.postimg.cc/fbdjynnV/image-2024-05-23-234334269.png)
+<a href="https://ibb.co/fVmQWJyC"><img src="https://i.ibb.co/ZRyNr9Fh/IMG-1515.png" alt="IMG-1515" border="0"></a>
