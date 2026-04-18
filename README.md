@@ -2,7 +2,7 @@
 VERMIN ╲ LIU  ‎ ‎ ‎ ‎ ‎ ‎ ‎ (S)HE IT
 </p>
 <p align="center">
-  <img width="300" height="253" src="https://i.postimg.cc/59TKL3vH/Untitled2215-20250307211609.png">
+  <img width="300" height="253" src="[https://i.postimg.cc/59TKL3vH/Untitled2215-20250307211609.png](https://i.postimg.cc/Prw03G6N/Untitled2671-20260417213101.png)">
 </p>
 
 <p align="center">
