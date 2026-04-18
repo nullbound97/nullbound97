@@ -3,9 +3,8 @@ VERMIN ♱ LIU    (S)HE IT
 </p>
 
 <p align=”center”>
-<img src=
+<img src=https://i.postimg.cc/PxfQDD7f/IMG-1514.png>
 
-”>
 </p>
 
 <p align=”center”>
